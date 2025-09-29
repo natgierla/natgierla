@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @natgierla
-- 👀 I’m interested in social justice
 - 🌱 I’m currently learning psychology and data analysis
 - 📫 How to reach me natalia.gierlachowski@gmail.com
 
